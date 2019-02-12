@@ -7,8 +7,10 @@ Feel free to come solo, or bring a friend to help you indulge in your favorite v
 Wear whatever you want! I bet Lady Gaga will be in something weird (Bohemian-chic?), but I'll just be in a suit with a black pant. Her antics aside, Gaga seems like she's just on the border of taking home her first Oscar this year!
 
 Details:
+
 Red Carpet: 6:00pm
+
 Oscars: 7:00pm-10:30pm
 
-<a href="">Facebook Event</a>
-<a href="">Twitter Feed</a>
+<a href="https://www.facebook.com/events/284581468864456/">Facebook Event</a>
+<a href="https://twitter.com/@mitchsparty">Twitter Feed</a>
