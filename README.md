@@ -9,3 +9,6 @@ Wear whatever you want! I bet Lady Gaga will be in something weird (Bohemian-chi
 Details:
 Red Carpet: 6:00pm
 Oscars: 7:00pm-10:30pm
+
+<a href="">Facebook Event</a>
+<a href="">Twitter Feed</a>
