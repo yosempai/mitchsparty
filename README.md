@@ -8,6 +8,8 @@ Wear whatever you want! I bet Lady Gaga will be in something weird (Bohemian-chi
 
 Details:
 
+Sunday, February 24th
+
 Red Carpet: 6:00pm
 
 Oscars: 7:00pm-10:30pm
