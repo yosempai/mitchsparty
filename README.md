@@ -10,6 +10,8 @@ Details:
 
 Sunday, February 24th
 
+Mitch's Apartment
+
 Red Carpet: 6:00pm
 
 Oscars: 7:00pm-10:30pm
