@@ -1,6 +1,6 @@
 The 91st Academy Awards
 
-For me, it's the favourite season of the year…awards season! Can you ever forgive me? Come over to my apartment on a Sunday night (or late afternoon for you red carpet fashion fiends) to party with me and revel in the self-congratulating pageantry that is the Academy Awards. Without a host for the first time in since the Cold War, the telecast is promised to be under three hours. Never look away or else you might miss the action! It will be incredible, too.
+For me, it's the favourite season of the year…awards season! Can you ever forgive me? Come over to my apartment on a Sunday night (or late afternoon for you red carpet fashion fiends) to party with me and revel in the self-congratulating pageantry that is the Academy Awards. Without a host for the first time since the Cold War, the telecast is promised to be under three hours. Never look away or else you might miss the action! It will be incredible, too.
 
 Feel free to come solo, or bring a friend to help you indulge in your favorite vices: aromatic vegan appetizers and stiff cocktails. I'll have enough for everyone, so no need to shoplift pretzels from the gas station (unless you really want to). I'm trying extra hard to make sure the party is plastic-free and green! Book your RSVP now so I know how much food/drink to prepare.
 
